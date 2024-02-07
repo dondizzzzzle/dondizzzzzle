@@ -1,4 +1,8 @@
-### Hi there 👋
+## Dion / Dondizzzzzle
+
+This profile is hosting an ongoing digital history project on one of two subjects: the *'pataphysics* movement in France that partially coincided with Dadaism during WWII, or the connection between history and fiction particularly attested in science fiction, especially around the late 1800s and 1900s.
+
+As I'm writing this README, I am actually more inclined to study the latter one for historiographical reasons, though the former is still good as a general piece of history which could happen to be digitalised.
 
 ---
 
