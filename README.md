@@ -1,4 +1,4 @@
-## Dion / Dondizzzzzle
+## Dion Cenalia | dondizzzzzle
 
 This profile is hosting an ongoing digital history project on one of two subjects: the *'pataphysics* movement in France that partially coincided with Dadaism during WWII, or the connection between history and fiction particularly attested in science fiction, especially around the late 1800s and 1900s.
 
